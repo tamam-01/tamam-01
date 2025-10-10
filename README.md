@@ -7,6 +7,8 @@ C+H is okay. Lets touch pixels twin 🤞🤞
 
 I'm like rlly awkward socially I apologize in advance🫟
 
+rlly multifandom but I especially like gnp, pokémon, and phighting
+
 <img src="https://files.catbox.moe/ebifqm.jpeg" width="150" height="150"/></p>
 
 ![](https://komarev.com/ghpvc/?username=tamam-01&color=a734e9&style=plastic&label=::3)
